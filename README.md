@@ -30,7 +30,7 @@ https://www.youtube.com/channel/UCKuVC8RZ5tQf0CaDfXS_87Q
 
 Facebook Profile
 
-facebook.com/itsdeanmasalta/
+https://www.facebook.com/itsdeanmasalta/
 
 ---
 
